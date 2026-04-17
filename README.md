@@ -3,8 +3,4 @@
 # I work at tekrevol
 <br>
 # Right now i am a trainee
-wow
-wow
-wow
-wow
-wow
+
